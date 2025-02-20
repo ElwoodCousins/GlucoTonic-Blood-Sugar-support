@@ -43,48 +43,8 @@
 </li>
 </ol>
 <p>&nbsp;</p>
-<div class=" Dyb9Ge">
-<div class="tGPUJe">
-<div class="xPx9xc Ajdkue"><img src="https://lh3.googleusercontent.com/a/ACg8ocKxHm-_QhsVmhXgIgiYWBSBIkILolxpa4OVmH4VMvxe5Rly4w=s40-c" alt="Gulco Tonic's profile photo" /></div>
-</div>
-</div>
 <div class="X7AGAf">
-<div class="UZ2tvc">
-<div class="NcB7hc">
-<div class="LgTNRd">
-<h3 id="c1" class="s1f8Zd">Gulco Tonic</h3>
-<span class="rYVTn">&lt;gulcotonic@gmail.com&gt;</span></div>
-<div class="ELCJ4d"><span class="zX2W9c">12:40&nbsp;(1 hour ago)&nbsp;</span>
-<div class="jX3HFe c5jofc" data-group-email="glucotonic-blood-sugar@googlegroups.com" data-conv-id="wlLFObSK7Xg" data-starred="false" data-message-id="6DTK-l0tAgAJ">
-<div class="uArJ5e Y5FYJe cjq2Db pzr7Cc" tabindex="0" data-tooltip="Not starred" data-tooltip-vertical-offset="-12" data-tooltip-horizontal-offset="0">
-<div class="PDXc1b MbhUzd">&nbsp;</div>
-<span class="XuQwKc"><span class="GmuOkf"><span class="DPvwYc Y995Ff"></span></span></span></div>
-</div>
-<div class="uArJ5e Y5FYJe cjq2Db c5jofc" tabindex="0" data-tooltip="Reply all" data-tooltip-vertical-offset="-12" data-tooltip-horizontal-offset="0">
-<div class="PDXc1b MbhUzd">&nbsp;</div>
-<span class="XuQwKc"><span class="GmuOkf"><span class="DPvwYc sm8sCf rNtgQd"></span></span></span></div>
-<div class="d8aLif">
-<div class="U26fgb JRtysb WzwrXb I12f0b K2mXPb" tabindex="0" data-tooltip="More" data-tooltip-vertical-offset="-12" data-tooltip-horizontal-offset="0">
-<div class="NWlf3e MbhUzd">&nbsp;</div>
-<span class="MhXXcc oJeWuf"><span class="Lw7GHd snByac"><span class="DPvwYc rNtgQd"></span></span></span></div>
-</div>
-</div>
-</div>
-<div class="JYW4cc"><span class="qFQw9e">to&nbsp;GlucoTonic Blood Sugar</span></div>
-</div>
 <div class="ptW7te">
-<p><span style="font-family: Trebuchet;">➲&nbsp;<strong>Product Name:<a href="https://www.facebook.com/GlucoTonic.Official/" target="_blank" rel="nofollow" data-saferedirecturl="https://www.google.com/url?hl=en-GB&amp;q=https://www.facebook.com/GlucoTonic.Official/&amp;source=gmail&amp;ust=1740124848681000&amp;usg=AOvVaw0onbC97tXEHLMp-4prvY6A">GlucoTonic Blood Sugar</a></strong></span></p>
-<p><span style="font-family: Trebuchet;">➲&nbsp;<strong>Benefits:<a href="https://www.facebook.com/GlucoTonic.Official/" target="_blank" rel="nofollow" data-saferedirecturl="https://www.google.com/url?hl=en-GB&amp;q=https://www.facebook.com/GlucoTonic.Official/&amp;source=gmail&amp;ust=1740124848681000&amp;usg=AOvVaw0onbC97tXEHLMp-4prvY6A">GlucoTonic Blood Sugar</a>&nbsp;Helps you to Management of High Blood Pressure.</strong></span></p>
-<p><span style="font-family: Trebuchet;">➲&nbsp;<strong>Healthy Benefits :Control your hormone levels</strong></span></p>
-<p><span style="font-family: Trebuchet;">➲<strong>Category:Boost Vitality and Strength Supplement.</strong></span></p>
-<p><span style="font-family: Trebuchet;">➲<strong>Rating:</strong><a href="https://www.facebook.com/GlucoTonic.Official/" target="_blank" rel="nofollow" data-saferedirecturl="https://www.google.com/url?hl=en-GB&amp;q=https://www.facebook.com/GlucoTonic.Official/&amp;source=gmail&amp;ust=1740124848681000&amp;usg=AOvVaw0onbC97tXEHLMp-4prvY6A">★★★★☆ (4.5/5.0)</a></span></p>
-<p><span style="font-family: Trebuchet;">➲<strong>Side Effects:No Major Side Effects</strong></span></p>
-<p><span style="font-family: Trebuchet;">➲<strong>Availability:<a href="https://www.facebook.com/GlucoTonic.Official/" target="_blank" rel="nofollow" data-saferedirecturl="https://www.google.com/url?hl=en-GB&amp;q=https://www.facebook.com/GlucoTonic.Official/&amp;source=gmail&amp;ust=1740124848681000&amp;usg=AOvVaw0onbC97tXEHLMp-4prvY6A">In Stock Voted #1 Product in the United States</a></strong></span></p>
-<p><u><span style="font-family: Trebuchet;">➲&nbsp;<strong>Official Websites:  &mdash;&gt;&nbsp;<a href="https://www.facebook.com/GlucoTonic.Official/" target="_blank" rel="nofollow" data-saferedirecturl="https://www.google.com/url?hl=en-GB&amp;q=https://www.facebook.com/GlucoTonic.Official/&amp;source=gmail&amp;ust=1740124848681000&amp;usg=AOvVaw0onbC97tXEHLMp-4prvY6A">https://www.facebook.com/GlucoTonic.Official/</a></strong></span></u></p>
-<p><span style="font-family: Trebuchet;">&nbsp;</span></p>
-<p><span style="font-family: Trebuchet;"><u><strong>Introduction:</strong></u></span></p>
-<p><span style="font-family: Trebuchet;">In nowadays&rsquo;s speedy-paced world, coping with blood sugar stages has turn out to be greater crucial than ever. With growing cases of diabetes and prediabetes globally, human beings are continuously attempting to find effective solutions to modify their blood sugar ranges. One such answer that has received massive attention is GlucoTonic Blood Sugar, a herbal blood sugar assist supplement. This article explores everything you need to understand about GlucoTonic Blood Sugar, its advantages, elements, the way it works, and why it could be the key to preserving healthy blood sugar stages.</span></p>
-<p><span style="font-family: Trebuchet;">&nbsp;</span></p>
 <p lang="en-GB"><a href="https://www.facebook.com/GlucoTonic.Official/" target="_blank" rel="nofollow" data-saferedirecturl="https://www.google.com/url?hl=en-GB&amp;q=https://www.facebook.com/GlucoTonic.Official/&amp;source=gmail&amp;ust=1740124848681000&amp;usg=AOvVaw0onbC97tXEHLMp-4prvY6A"><span style="font-family: Trebuchet;"><strong>GlucoTonic Blood Sugar Is On Sale Now For A Limited Time!</strong></span></a></p>
 <p lang="en-GB">&nbsp;</p>
 <p lang="en-GB"><a href="https://www.facebook.com/GlucoTonic.Official/" target="_blank" rel="nofollow" data-saferedirecturl="https://www.google.com/url?hl=en-GB&amp;q=https://www.facebook.com/GlucoTonic.Official/&amp;source=gmail&amp;ust=1740124848681000&amp;usg=AOvVaw0onbC97tXEHLMp-4prvY6A"><img src="https://groups.google.com/group/glucotonic-blood-sugar/attach/22d5dfaca34e8/GlucoTonic%20Diabetes%20ing.PNG?part=0.3&amp;view=1" alt="GlucoTonic Diabetes ing.PNG" width="534px" height="250px" data-iml="4801.299999999814" /></a></p>
